@@ -1,4 +1,4 @@
-# Univrsal block
+# Universal block
 
 https://www.youtube.com/watch?v=v-3-1R463qQ&ab_channel=OficinaMaker
 
